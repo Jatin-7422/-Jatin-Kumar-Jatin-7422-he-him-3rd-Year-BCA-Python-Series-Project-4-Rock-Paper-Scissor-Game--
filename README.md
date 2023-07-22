@@ -29,3 +29,4 @@ Your feedback is appreciated. If you have any comments or questions regarding th
 Thank you for playing the Rock Paper Scissors Game!
 
 JATIN KUMAR
+Gmail:- jatinkumar7422@gmail.com
